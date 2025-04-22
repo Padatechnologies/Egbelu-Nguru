@@ -1,9 +1,5 @@
 # Egbelu-Nguru
-Everything you need to know
-Unified Solutions (Us) consulting
-
-At Us, we empower aspiring students to study abroad with confidence. Our comprehensive Money Back Guarantee consulting services cater to your unique needs, ensuring a seamless journey from destination selection to peaceful settlement. Our revolutionary service ultimately empowers the customer to detect the terms of the transaction, upholding the extra-ordinary Kingship of the customer.
-
+Unified Solutions (Us) consulting. At Us, we empower aspiring students to study abroad with confidence. Our comprehensive Money Back Guarantee consulting services cater to your unique needs, ensuring a seamless journey from destination selection to peaceful settlement. Our revolutionary service ultimately empowers the customer to detect the terms of the transaction, upholding the extra-ordinary Kingship of the customer.
 Our Expertise
 
 I.    Destination Guidance: Explore your options and choose the perfect fit.
